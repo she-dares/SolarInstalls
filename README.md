@@ -1,1 +1,2 @@
-# SolarInstalls
+
+https://shedares.shinyapps.io/SolarInstallation/
