@@ -1,6 +1,6 @@
 # Hottest Opportunities and Trends in Solar Business:
 
-###Brief Introduction:
+### Brief Introduction:
 Do you like earning money? And, at the same time contribute to saving the planet? What if I prove to you Solar Business is the next booming field having plenty of opportunities in coming decades, with plus point of reducing our carbon footprint.
 
 You'd argue...Really? But solar installations are so expensive! They are not even efficient! Why would anyone even install them?
